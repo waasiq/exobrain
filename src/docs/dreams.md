@@ -1,0 +1,12 @@
+---
+slug: dreams
+title: Dreams
+authors: [waasiq]
+tags: [goals]
+date: 2018-11-18
+---
+
+# Dreams
+Dreams! 6 letters, 1 hyphen and 1 word to bounce my brain into this spiral back again. I too have dreamt like most people but I do think that somewhat my dreams are a bit peculiar. Two years ago I made a list of things that I wanted to buy once I got old and somehow my desires have changed as I have evolved into a mature person.
+
+Maybe who knows the things I dream of now may seem irrelevant to me in 5 years time, hence I am trying to develop a philosophy to enjoy my present moment as much as possible whilst dreaming too but focusing more on the former. I do dream of one day playing at a professional E-sports platform but as I advance forward critically analyzing achieving that dream seems a bit of hysterical idea rather than a possible reality but again I believe that dreaming big is one of the best things a person can do; for he will surely land in a better place than he is while trying to achieve it. I want to engineer something that may one day inspire or help others in their pursuit of happiness, I want to inspire people to be better than themselves and to fight face on the demons that haunt. I dream of one day having someone to share my feeling with someone to talk about my ideas and someone to fill this void I am having whilst sometimes loneliness immerses me often. Mostly when I see the computers and read about the latest, software and trends I dream of working at Google one day, my dream company. Of course, I don't have a bit of idea that how competitive the life at Google is but I still dream of working in a place where I may have a platform to create something creative to help others. I believe that my speech and literary skills are somewhat spectacular and fall in the higher percentile bracket and that’s why I also dream of becoming a successful motivational speaker as well as an inspiring writer one day. I dream of traveling the world and exploring new cultures, meeting new people and knowing their version of life and their stories. This may seem eccentric but I don't dream of living a conventional lifestyle such a marrying specifically at 25 and having a pair of kids at 30 and doing things over and over again, but I want to enjoy and savor the limited time I have in this world. Amongst all this, I dream of learning as much as possible becoming a renaissance man.

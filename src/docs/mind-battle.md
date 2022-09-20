@@ -1,0 +1,13 @@
+---
+slug: mind-and-brain
+title: The battle of Mind and Brain! 
+authors: [waasiq]
+tags: [reality]
+date: 2019-03-10
+---
+
+# The battle of Mind and Brain! 
+<p style = {{textAlign:"justify"}}>
+"Run Forrest Run!" The cut scene of movie Forrest Gump comes into my mind, flashback starts and I am sitting in a lonely corner in a dark room. Come to us, a voice says and I instantly stand up without even noticing that the scars on my shoulder are still bleeding. As I enter the right side there is a door with a light inside it yet it seems so strange because the light attracts my mind no more. How strange it is for someone to leave all that is shining like gold and try to go towards a darker place! I see her in my dream calling my name in a soft yet piercing tone which breaks my heart into pieces. I wake up and notice I am covered in sweat and look outside the window; the noise of birds pull me inside the present but I want to go back. Go back to the dream in which my heart felt happy, in which the heart was free from the chains of the brain. How the brain stops me from such things which heart wants to do, the heart sometimes wants to break the jails of the logic and go free like a bird flying freely without the care of the direction of the wind. I close my eyes but the faint images of her are long gone and I can't remember anything except the soft expression in which she described my name. Imagining this does light the fire on the iced heart inside yet it is not enough to completely melt the ice! Clouds pass, sunrises and another day pass yet the battle of my mind with my heart never stops! Not only does the two collide but it seems like a war because of the interesting logics the mind gives which the feeling of heart simply sweeps away in a second. If you could relate it surely seems like one of the hardest things to master doesn't it? 
+Recently after discovering the art of yoga through which the emotions can be controlled and trying to even master a bit of simple thing as breathing, the feeling of liking someone isn't like anger at all. Liking or loving someone is quite different, although the brain wants to stop the heart won't, which in the main root cause of all the problem. The reason why making a decision against all the logic is so hard, the reason why leaving someone whom you love and think isn't perfect for you is hard, the reason why leaving an addiction is hard. All these have a thing associated with our feelings which overcome logic in most cases. The real question lies beneath the first lair whether the logic is right or the heart? 
+</p>
