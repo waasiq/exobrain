@@ -8,7 +8,7 @@ const darkCodeTheme = require('prism-react-renderer/themes/dracula');
 const config = {
   title: "Waasiq's exobrain",
   tagline: 'A personal wiki for my thoughts',
-  url: '/',
+  url: 'https://exobrain-waasiq.netlify.app',
   baseUrl: '/',
   onBrokenLinks: 'throw',
   onBrokenMarkdownLinks: 'warn',
