@@ -1,0 +1,8 @@
+
+# Admission Story
+
+So during my final exams of 12th grade I stopped going to library or checking my mail, I didn't use technology that much and just focused on the finals. Also, most of the rejections had come so I usually felt bad checking my mail, nevertheless one day I wanted my pictures to take from the library. My friend Hassan was being lazy so I was the one volunteered to go to the library and take them, now I just planned on to go to the library and come back but when I went I saw a computer which was free. Usually all the computers were occupied by the juniors but only one of the computer was free that day and I just decided to hop on the computer and check my Facebook account.
+
+I was a bit resistent to check my email but then I just said let's check it for a bit and I saw the invitation from Burslari scholarship for an in person interview in embassy. I saw the date and time which corrosponded with one of my exams, in response I sent them a mail to change it and forwarded it to my father. I remember that I was not too much motivated and didn't have that much energy to pursue it, yet still I tried to do the bare minimum and forgot about it. My father then contacted the principle of the college and arranged a transport for the interview and motivated me to go for it.
+
+Well the interview went good and I was quite happy with all of it, I again forgot about it and just started to focus on the university exams of different universities in Pakistan. Later on, in July I got the acceptance letter for it and ofcourse decided to pursue with it.
