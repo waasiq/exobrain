@@ -38,15 +38,15 @@ Following is the list of movies I would like to watch if I ever got the chance:
 35. [x] 1917
 36. Leon The Professional
 37. Dead Poets Soceity
-38. The Dark Knight
+38. [x] The Dark Knight
 39. 500 Days of Summer
 40. The Godfather
 41. Goodfellas
 42. The Departed
-43. The Pursuit of Happiness
+43. [x] The Pursuit of Happiness
 44. Reservoir Dogs
 45. The usual Suspects
-46. Green Book
+46. [x] Green Book
 47. [x] The Prestige
 48. [x] Wall - E
 49. Inglorious Bastards
@@ -64,7 +64,7 @@ Following is the list of movies I would like to watch if I ever got the chance:
 61. [x] Into The Wild
 62. Hacksaw Ridge
 63. Requiem For A dream
-64. Parasite
+64. [x] Parasite
 65. Apoocalypto
-66. Prisoners
+66. [x] Prisoners
 67. The Invisible Guest

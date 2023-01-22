@@ -3,6 +3,8 @@
 
 I used to watch a lot of movies in my teenage years on television and during my time at CCH we had movie night every Saturday which was very good but after 2018 I stopped watching a lot of movies. Now I rarely watch a movie unless I am with someone. Usually sometimes me and my friend Bedru go to cinema to enjoy a movie and time out from our busy lives. Still I made a list of the movies I have watched and I will try to keep it updated as I watch more movies.
 
+**No. of new movies watched recently: 21**
+
 ## List
 1. The Hunger Games
 2. The Hunger Games: Catching Fire
@@ -149,5 +151,26 @@ I used to watch a lot of movies in my teenage years on television and during my 
 143. Shooter
 144. Captain America
 145. The Truman Show
-146. Top Gun: Maverick
-147. The Black Phone
+146. Topgun: Maverick
+147. Up 
+148. 127 Hours
+149. The Black Phone
+150. Forgotten
+151. Brothers
+152. Ready or Not
+153. Run, Hide, Fight
+154. Hachiko: A Dog's Story
+155. Dirty Grandpa
+156. Prisoners (2013)
+157. Parasite
+158. Memories of Murder
+159. Silence of the Lambs
+160. The Chaser
+161. The Girl in the Basement
+162. Bird Box
+163. Ghost Ship
+164. A Serbian Film
+165. Escape Room
+166. Wild Tales
+167. In Time
+168. Exam
